@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **gorainanirban@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1lLeywEu363gTVhKF1PSXr8AqgBTdZHgmuZfQNktbpgo/edit?usp=sharing](https://docs.google.com/document/d/1lLeywEu363gTVhKF1PSXr8AqgBTdZHgmuZfQNktbpgo/edit?usp=sharing)
+- 📄 Know about my experiences [https://docs.google.com/document/d/1lLeywEu363gTVhKF1PSXr8AqgBTdZHgmuZfQNktbpgo/edit?usp=sharing](https://shorturl.at/bi7PN)
 
 - ⚡ Fun fact **Generally I am introvert in nature but when my interest aligns I dig a lot.**
 
