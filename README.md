@@ -9,9 +9,9 @@
 
 - 🌱 I’m currently learning **Next.js, React Native**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Anirban-Gorain](https://github.com/Anirban-Gorain)
+- 👨‍💻 All of my projects are available at [GitHub](https://github.com/Anirban-Gorain)
 
-- 📝 I regularly post videos on [https://www.facebook.com/anirban.gorain.73/](https://www.facebook.com/anirban.gorain.73/)
+- 📝 I regularly post videos on [Facebook](https://www.facebook.com/anirban.gorain.73/)
 
 - 💬 Ask me about **HTML, CSS, JavaScript, React, SCSS, Node.js, Express, MongoDB, C, C++, DSA, CS fundamentals.**
 
