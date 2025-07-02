@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gorainanirban@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://shorturl.at/bi7PN)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1lLeywEu363gTVhKF1PSXr8AqgBTdZHgmuZfQNktbpgo/edit?usp=sharing)
 
 <br/>
 <br/>
